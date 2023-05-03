@@ -1,1 +1,1 @@
-# girls-word
+# girls-word.com
